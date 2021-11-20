@@ -2,15 +2,15 @@
 
 ## INGREDIENTS
 
-- 12 large eggs
-- 2 cups granulated sugar
-- 1 cup heavy cream
-- 1 quart (4 cups) whole milk
-- 1 liter (about 4 cups) bourbon (Maker's Mark, Woodford Reserve or your choice.)
-- 1/2 cup dark rum (Kraken or Myer's)
-- 1/2 to 1 cup good Cognac or other brandy
+- 6 large eggs
+- 1 cups granulated sugar
+- 1/2 cup heavy cream
+- 1/2 quart (4 cups) whole milk
+- 1/2 liter (about 4 cups) bourbon (Maker's Mark, Woodford Reserve or your choice.)
+- 1/4 cup dark rum (Kraken or Myer's)
+- 1/4 to 1 cup good Cognac or other brandy
 - Pinch kosher salt
-- 1 whole nutmeg
+- 1/2 whole nutmeg
 - Aluminum Foil
 - Several Glass Bottles
 
